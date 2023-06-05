@@ -1,6 +1,6 @@
 ## Olá! Eu sou a Erenilda! 😊👋
 
-- 🌱 Atualmente estou Fazendo um bootcamp de Desenvolvedor FullStack jr pela Generation Brasil 🚀
+- 🌱 Desenvolvedora FullStack jr JAVA|REACT 🚀
 
 ## Contact me 🤝 
 
